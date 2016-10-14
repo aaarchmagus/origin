@@ -1,1 +1,1 @@
-# origin
+archmagus   Netease account/nickname
